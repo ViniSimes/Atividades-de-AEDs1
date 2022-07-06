@@ -1,0 +1,1 @@
+Theldo, infelizmente não estou conseguindo terminar nem se quer compilar a atividade. Semestre que vem vou refazer AEDs novamente. Mesmo que eu passasse de raspão agora não ia conseguir fazer nada em AEDs como estou agora.
