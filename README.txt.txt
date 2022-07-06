@@ -1,1 +1,0 @@
-Primeira lista de atividades proposta por Theldo Cruz Franqueira.
